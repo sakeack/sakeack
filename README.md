@@ -1,0 +1,4 @@
+- Yosh, i'm Saiko. 
+- I'm looking forward to learning ways to look behind the curtain of visual *lies*.
+- I'm currently obtaining skills of **actual** surviving in this unequal *world*.
+- I'm also going to help and provide for community as much, *so wait for my time*.
